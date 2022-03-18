@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate on my Jouney
 
 
-     Sara Moha From Somalia
+     Sara Mohamad From Somalia
 
 
 

@@ -4,7 +4,6 @@
 
 - 🌱 I’m currently learning 
 
-- 💞️ I’m looking to collaborate on my Jouney
 
 
      Sara Mohamad From Somalia
